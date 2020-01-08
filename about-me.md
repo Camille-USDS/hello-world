@@ -2,7 +2,7 @@
 
 ![Picture of me]()
 
-Hi, I'm ____________. I'm a ________ at *__________*.
+Hi, I'm Camille. I'm an Acquisition Strategist at *USDS*.
 
 - **Past Companies and Organizations:**
 - **Hobbies:**
